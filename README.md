@@ -1,1 +1,1 @@
-# Interhet-magazin
+# Internet-magazin
